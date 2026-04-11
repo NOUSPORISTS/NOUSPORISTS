@@ -1,6 +1,6 @@
 <div align="center">
 
-hello ??? ata under construction
+hello ??? everything under construction atp
 
-k bai
+look somewhere else :p
 </div>
